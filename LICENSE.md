@@ -1,4 +1,4 @@
-# 
+# 7-Zip for PC | 7-Zip for Windows vip Plugin: batch-processing & cloud-integration is the best 7-Zip for PC | 7-Zip for Windows plugin, featuring batch-processing and
 
 
 
